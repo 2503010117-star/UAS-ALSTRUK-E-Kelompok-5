@@ -7,8 +7,8 @@ Anggota Kelompok
 - Salma Nafisa Auliaa Mumtaza / 2503010103
 - Azmi Nabila / 2503010117
 - Andriana / 2403010171
-- Faisal 
-- Raihan
+- Faisal Alviyana / 2503010111
+- Raihan Dzikri Gunawan / 2503010106
 
 ## Studi Kasus
 
